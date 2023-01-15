@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+***
+
+![pachi](https://user-images.githubusercontent.com/87933620/212531690-53fca300-88a4-4c4e-9731-16d6994a33fe.gif)
